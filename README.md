@@ -22,7 +22,7 @@ I have memory issues and social anxiety (｡ᵕ ◞ _◟)
 
 $\color{#0D1117}{\text{idk how to code leave me alone voidvoidvoid}}$ ⋆｡𖦹°⭒˚｡⋆
 
-$\color{#FCB7E4}{\text{☆ Sharing Yumeshipper .ᐟ.ᐟ F/o's :}}$
+$\color{#FCB7E4}{\text{☆ Sharing Yumeshipper .ᐟ.ᐟ F/o's :}}$ (rethinking it, might change)
 
 <img width="99" height="56" alt="tumblr_117588062552a1b91210fa24b048ca31_739a8949_250" src="https://github.com/user-attachments/assets/318d215a-0d4f-4ba4-85ad-f5d91c836c0e" />
 <img width="99" height="56" alt="tumblr_df5725c8e8470980eadaea712df68173_e1ab9c12_100" src="https://github.com/user-attachments/assets/1515a97c-b194-4eb9-98a2-adcdbc66b8dd" />
