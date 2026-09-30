@@ -18,11 +18,7 @@ $\color{#FCB7E4}{\text{✦ SUNSHINE ✦ RAINBOWS ✦ GLITTERS ✦ BUNNY ✦ CUPC
 
 ⋆｡𖦹°⭒˚｡⋆
 
-___C+H___ always but i'll most likely be quiet, im also ___Semi-AFK___ most of the time since my pony town is on my second screen, i prefer ___whisper___ and i'll try to answer quickly! ^^
-
-˚⋆
-
-I have memory issues and social anxiety (｡ᵕ ◞ _◟)
+___C+H___ always but i'll most likely be quiet, im also ___Semi-AFK___ most of the time since my pony town is on my second screen, i prefer ___whisper___ and i'll try to answer quickly! ⸜(｡˃ ᵕ ˂ )⸝♡
 
  ⋆｡𖦹°⭒˚｡⋆
 
