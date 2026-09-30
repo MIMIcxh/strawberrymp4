@@ -40,7 +40,7 @@ If you want more info click on my strawpage!! (i just struggle with github help�
 
 ‧˚₊•┈┈┈┈୨୧┈┈┈┈•‧₊˚⊹
 
-$\color{#0D1117}{\text{idk how to code leave me alone voidvoivoid}}$ LINKS
+<p align="center"> LINKS </p>
 
 $\color{#0D1117}{\text{bleh}}$ $🍓STRAWPAGE🍓$ $\color{#0D1117}{\text{bleh bleh bleh}}$ $📌ATA$ $BOOK📌$ $\color{#0D1117}{\text{bleh b}}$ $🔗ALL$ $LINKS🔗$
 
