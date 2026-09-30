@@ -22,27 +22,40 @@ I have memory issues and social anxiety (｡ᵕ ◞ _◟)
 
 $\color{#0D1117}{\text{idk how to code leave me alone voidvoidvoid}}$ ⋆｡𖦹°⭒˚｡⋆
 
-$\color{#FCB7E4}{\text{☆ Sharing Yumeshipper .ᐟ.ᐟ F/o's :}}$ (rethinking it, might change)
+$\color{#FCB7E4}{\text{☆ Soft sharing Yumeshipper .ᐟ.ᐟ F/o's :}}$ (might change/add)
 
-<img width="99" height="56" alt="tumblr_117588062552a1b91210fa24b048ca31_739a8949_250" src="https://github.com/user-attachments/assets/318d215a-0d4f-4ba4-85ad-f5d91c836c0e" />
-<img width="99" height="56" alt="tumblr_df5725c8e8470980eadaea712df68173_e1ab9c12_100" src="https://github.com/user-attachments/assets/1515a97c-b194-4eb9-98a2-adcdbc66b8dd" />
+<img width="99" height="57" alt="tumblr_3271df4351d4de4f95bf57d198c12b61_e5b72afa_250" src="https://github.com/user-attachments/assets/6617281b-7737-44eb-9241-9048c6700901" />
 <img width="99" height="56" alt="tumblr_bb23a98cf8c65adb3b6e18be8dc580b3_5cfff70d_100" src="https://github.com/user-attachments/assets/84be5671-ad8b-4439-b2f5-a09e46a110b9" /> <--dumbass
+
+Saiki would hate seing me coming but let me be delusional💔
 
 ₊˚ ✧ ━━━━━━ ꒰ঌ ⊱ ·✦· ⊰ ໒꒱ ━━━━━━ ✧ ₊˚
 
-☆ Random things i like! :
+$\color{#FCB7E4}{\text{۶ৎ Doubles are welcomed if you interact with caution and respect my boundaries!! :D}}$
+<details>
+  <summary><ins>☆ Yumeship boundaries! (click me :3)</ins></summary>
 
-TADC, Animal hospital, DDLC, NSO , Kilari, mermaid melody, yansim, vocaloid, MLP, and more! (i forgot ok..)
+<p>✦DNI if your non sharing :<</p>
+<p>✦Anti-yume stay away</p>
+<p>✦My yumeship aren't all romantic! some are plactonic/family, it'll alway be mentioned somewhere</p>
+<p>✦Don't say things that implied our shared f/o is yours/love you more</p>
+<p>✦Keep in mind that i can be jealous but i'll try my best to share and be nice ^_^</p>
+<p>✦don't sexualize my f/o, dirty jokes are allow thought</p>
+<p>✦Problematic yumeship please DNI</p>
+<p>✦Shipping my f/o with another characters makes me a bit uncomfortable, so please avoid talking about my f/o ship</p>
+<p>✦If you judge my f/o choice i'll ignore you</p>
+<p>✦I don't like being blocked so don't block me for having the same f/o, i lowkey change a lot (#indecisive💔) so no point in blocking me, thanks!</p>
+<p>ִֶָ۶ৎ˖ִ ˚Remember: your yumeship is canon! <3 ᶻ 𝗓 𐰁 .ᐟ</p>
+</div>
+</details>
 
 <img width="320" alt="willy page" src="https://github.com/user-attachments/assets/694c5855-75c3-4539-85c9-53ad47e98759" />
-
-If you want more info click on my strawpage!! (i just struggle with github help💔)
 
 ‧˚₊•┈┈┈┈୨୧┈┈┈┈•‧₊˚⊹
 
 <p align="center"> LINKS </p>
 
-$\color{#0D1117}{\text{bleh}}$ $🍓STRAWPAGE🍓$ $\color{#0D1117}{\text{bleh bleh bleh}}$ $📌ATA$ $BOOK📌$ $\color{#0D1117}{\text{bleh b}}$ $🔗ALL$ $LINKS🔗$
+$\color{#0D1117}{\text{bleh}}$ $🍓STRAWPAGE🍓$ $\color{#0D1117}{\text{bleh bleh bleh}}$ $📌ATA$ $BOOK📌$ $\color{#0D1117}{\text{bleh bleh bl}}$ $🔗ALL$ $LINKS🔗$
 
 <a href="https://soft-plush.straw.page" target="_blank" ><img width="240" alt="Animation Pixel Sticker - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/07ffb97c-2a88-43a9-b58a-c4b1175175bb"/></a>
 <a href="https://str4wb3rry.atabook.org/" target="_blank" ><img width="240" alt="Heart Pixel Sticker - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/f8396111-b6ba-45f8-9862-66da8a6067a4"/></a>
