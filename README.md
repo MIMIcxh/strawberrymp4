@@ -20,6 +20,10 @@ $\color{#FCB7E4}{\text{✦ SUNSHINE ✦ RAINBOWS ✦ GLITTERS ✦ BUNNY ✦ CUPC
 
 ___C+H___ always but i'll most likely be quiet, im also ___Semi-AFK___ most of the time since my pony town is on my second screen, i prefer ___whisper___ and i'll try to answer quickly! ⸜(｡˃ ᵕ ˂ )⸝♡
 
+$\color{#FCB7E4}{\text{don't try to RP with me it makes me uncomfortable}}$
+
+my DNI are the basic criteria i'm lazy to list them, just dni if ur problematic :P
+
  ⋆｡𖦹°⭒˚｡⋆
 
 $\color{#FCB7E4}{\text{☆ Soft sharing Yumeshipper .ᐟ.ᐟ F/o's :}}$ (might change/add)
