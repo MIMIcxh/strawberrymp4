@@ -29,7 +29,8 @@ My DNI are the basic criteria i'm lazy to list them, just dni if ur problematic 
 $\color{#FCB7E4}{\text{☆ Soft sharing Yumeshipper .ᐟ.ᐟ F/o's :}}$ (might change/add)
 
 <img width="99" height="57" alt="tumblr_3271df4351d4de4f95bf57d198c12b61_e5b72afa_250" src="https://github.com/user-attachments/assets/6617281b-7737-44eb-9241-9048c6700901" />
-<img width="99" height="56" alt="tumblr_bb23a98cf8c65adb3b6e18be8dc580b3_5cfff70d_100" src="https://github.com/user-attachments/assets/84be5671-ad8b-4439-b2f5-a09e46a110b9" /> <--dumbass
+<img width="99" height="56" alt="tumblr_bb23a98cf8c65adb3b6e18be8dc580b3_5cfff70d_100" src="https://github.com/user-attachments/assets/84be5671-ad8b-4439-b2f5-a09e46a110b9" /> <--dumbass  <img width="99" height="56" alt="natsuki" src="https://github.com/user-attachments/assets/24127008-bed0-47d4-a046-09ae48f32c1a" /> family yume! My little sis ^^
+
 
 Saiki would hate seing me coming but let me be delusional💔
 
